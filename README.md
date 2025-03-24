@@ -2,7 +2,7 @@
 - 👀 I’m interested in sonic
 - 🌱 I’m currently learning how to fly a jet engine
 - 💞️ I’m not looking to collaborate
-- 📫 How to reach me teleportation rings
+- 📫 Reach me by teleportation rings
 - 😄 Pronouns: disturbing/the/peace
 - ⚡ Fun fact: i like sonic 
 
